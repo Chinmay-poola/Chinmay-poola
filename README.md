@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Chinmay-poola
+- 💭 I’m currently learning Data Scinece and AI
+- 📚 I'm in my first year b'tech
+- 📫 How to reach me ... It's better if you leave me be
+- ⚽ I follow Manchester City Football Club 💙💙💙
